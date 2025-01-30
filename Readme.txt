@@ -54,5 +54,5 @@ Feel free to use, modify, and distribute it!
 
 🔗 Connect with Me
 💼 GitHub: [https://github.com/Lucasdotdot]
-📧 Email: [Lucasdotdot@gmail.com]
+📧 Email: [LucasZahlan@gmail.com]
 📢 LinkedIn: [https://www.linkedin.com/in/lucas-zahlan-555370293/]
